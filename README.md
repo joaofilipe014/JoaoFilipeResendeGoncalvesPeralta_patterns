@@ -1,0 +1,1 @@
+# JoaoFilipeResendeGoncalvesPeralta_patterns
